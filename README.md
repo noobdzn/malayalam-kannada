@@ -62,4 +62,18 @@ engane cheythu - hege madidira ?
 
 
 
+nokku - nodu 
+keladi - kekku
+hogu - poku , hogi -formal
+
+
+auto conversations-
+
+yestu agutthe - ethre aavum
+illige hogthira- ingottu pokumo
+  
+
+
+
+
 
